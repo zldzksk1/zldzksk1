@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **jacob.sylee@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/sylee89/](https://www.linkedin.com/in/sylee89/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/sylee89/](https://www.linkedin.com/in/jacobsylee/)
 
 </br>
 </br>
